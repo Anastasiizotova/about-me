@@ -8,3 +8,4 @@
 
 
 Обучение очень интересное, но дается мне **сложно**!
+![котик](https://github.com/Anastasiizotova/about-me/assets/148309519/2bdbaf69-f1f8-4172-9147-da0bbc5640bc)
